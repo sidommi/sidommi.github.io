@@ -1,3 +1,3 @@
 # sidommi.github.io
 
-!!!This page os under construction!!!
+!!!This page is under construction!!!
